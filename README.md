@@ -1,0 +1,1 @@
+# Purshotam_5-_loss_stock
